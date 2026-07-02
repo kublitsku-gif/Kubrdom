@@ -1,4 +1,4 @@
-# Транскрипты канала «Ярослав Брын»
+# Транскрипты канала «Ярослав Брин»
 
 Авто-субтитры (YouTube), очищенные в текст. Всего 97 видео, 409,612 слов. Источник — публичный канал [youtube.com/channel/UCy5E4aFQdeX9cvRC4sttsSw](https://www.youtube.com/channel/UCy5E4aFQdeX9cvRC4sttsSw).
 
